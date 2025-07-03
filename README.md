@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @praize24
 - 👀 I’m interested in ... blockchain and cybersecurity
-- 🌱 I’m currently learning ... html and css 
+- 🌱 I’m currently learning ... cybersecurity 
 - 💞️ I’m looking to collaborate on ... projects 
 - 📫 How to reach me ... instagram @prai_ze3
 - 🌱
